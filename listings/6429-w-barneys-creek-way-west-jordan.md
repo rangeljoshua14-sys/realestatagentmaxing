@@ -37,6 +37,31 @@ Source: UtahRealEstate.com listing, pulled 11/21/2026. Check every fact below ag
 >
 > #WestJordanHomes #UtahRealEstate #JustListed #SaltLakeCounty #NewConstruction #UtahHomes #MountainViews
 
+## 3a. Instagram caption (Joshua's style)
+
+West Jordan space with room to spread out… ✨
+
+This 2024-built two-story sits on a 0.38-acre fully fenced lot with mountain views, and it has a main-floor primary suite with a soaking tub, separate shower and walk-in closet.
+
+Inside, you'll find vaulted ceilings, a private office, and a kitchen with a big quartz island, double ovens and a gas cooktop.
+
+Upstairs has a loft, its own laundry room, and 3 more bedrooms, each with a walk-in closet. Downstairs, the walkout basement has its own private entrance.
+
+📍 West Jordan, Utah
+🛏️ 5 Bed | 🛁 4.5 Bath | 📐 5,796 Sq Ft
+🌳 0.38 Acres | 💰 $1,199,990
+
+💬 Comment "WJ" for details.
+
+Listing courtesy of Jonathan Roman Lamk & Rodolfo Rangel | Utah Key Real Estate (Rangel Team)
+
+Joshua Rangel | REALTOR®
+Utah Key Real Estate
+📱 (801) 613-7726
+📧 joshua@rangel-realestate.com
+
+#westjordan #westjordanhomes #saltlakecountyrealestate #utahrealestate
+
 ## 4. Email / text blast
 
 **Subject:** New in West Jordan: built 2024, 6 bed, mountain views, $1,199,990
