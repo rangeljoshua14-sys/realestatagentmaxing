@@ -37,21 +37,21 @@ Source: UtahRealEstate.com listing, pulled 11/21/2026. Check every fact below ag
 >
 > #WestJordanHomes #UtahRealEstate #JustListed #SaltLakeCounty #NewConstruction #UtahHomes #MountainViews
 
-## 3a. Instagram caption (Joshua's style)
+## 3a. Instagram caption
 
-West Jordan space with room to spread out… ✨
+Mountain views from almost every window… 🏔️
 
-This 2024-built two-story sits on a 0.38-acre fully fenced lot with mountain views, and it has a main-floor primary suite with a soaking tub, separate shower and walk-in closet.
+Built in 2024, this two-story home has vaulted ceilings, clerestory windows, and a main-floor primary suite with a soaking tub and walk-in shower.
 
-Inside, you'll find vaulted ceilings, a private office, and a kitchen with a big quartz island, double ovens and a gas cooktop.
+The kitchen is made for hosting, with a big quartz island, double ovens and a gas cooktop that opens right into the living room and out to the covered deck.
 
-Upstairs has a loft, its own laundry room, and 3 more bedrooms, each with a walk-in closet. Downstairs, the walkout basement has its own private entrance.
+Down below, a walkout basement with its own private entrance is ready to finish your way. Out back, there's a putting green on a fully fenced 0.38-acre lot.
 
 📍 West Jordan, Utah
 🛏️ 5 Bed | 🛁 4.5 Bath | 📐 5,796 Sq Ft
 🌳 0.38 Acres | 💰 $1,199,990
 
-💬 Comment "WJ" for details.
+💬 Comment "VIEWS" for details.
 
 Listing courtesy of Jonathan Roman Lamk & Rodolfo Rangel | Utah Key Real Estate (Rangel Team)
 
@@ -60,7 +60,7 @@ Utah Key Real Estate
 📱 (801) 613-7726
 📧 joshua@rangel-realestate.com
 
-#westjordan #westjordanhomes #saltlakecountyrealestate #utahrealestate
+#westjordan #westjordanhomes #newconstructionutah #utahrealestate
 
 ## 4. Email / text blast
 
